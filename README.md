@@ -1,0 +1,1 @@
+# stodugildi_sveitarfelaga
